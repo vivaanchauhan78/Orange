@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/354927f5-67aa-4e1c-bb72-8370c075a30d)title: "Orange"
+title: "Orange"
 author: "David"
 description: "2 key macro pad for copying and pasting"
 created_at: "2024-06-28"
