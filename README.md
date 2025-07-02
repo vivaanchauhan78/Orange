@@ -10,5 +10,5 @@ I hated that I had to spend 3 sec of my life copying and pasteing stuff useing C
 ![image](https://github.com/user-attachments/assets/a4304a6a-d407-4db4-8c4d-b6155e2ebb99)
 ![image](https://github.com/user-attachments/assets/8844775f-3182-4f95-8d8a-87016bc52fd5)
 ![image](https://github.com/user-attachments/assets/aa936a53-6683-4b7e-b342-fc42f835e14a)
-![image](https://github.com/user-attachments/assets/52bd78e9-f9c9-4a54-8070-446b6ec769fa)
+
 
