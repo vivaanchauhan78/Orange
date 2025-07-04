@@ -19,4 +19,7 @@ Today I have to make the case! The hardest part is that I spent way too long try
 
 ![image](https://github.com/user-attachments/assets/cb2f12d2-de24-4a0a-98bd-027808de8c03)
 
-Total: 7.8hrs spent!
+July 2-4
+I spent most of my day making the case because I keep on messing up 😭 but after FOREVER I finally finshed the case!
+(3hrs)
+Total: 10.8hrs spent!
